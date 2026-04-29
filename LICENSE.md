@@ -1,4 +1,4 @@
-
+Experience ink game like never before with advanced Scripts for ink game, the #1 Script. Includes god mode and silent aim for unbeatable performance.
 
 
 
